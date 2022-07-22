@@ -1,3 +1,5 @@
 - 👋 Hi, I’m @NIKHILJOHNKENNETH
 - 👀 I’m interested in CARS AND ELECTRONIC GADGETS
 - 🌱 I’m currently learning BTECH
+- NO you are noT LEARNING ASSHOLEEEE
+- NIKHL GAY KENNETH!!
